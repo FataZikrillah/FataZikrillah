@@ -1,4 +1,4 @@
-# FatzDev
+# Fata ZIkrillah
 ![Pixel Art Gif Wallpaper - Gambar Wallpaper Keren](https://github.com/user-attachments/assets/b3a0cfbe-58cc-4624-ad11-b96c575dd503)
 # 💻 Masi Dalam Proses Belajar Pemograman:
 # 💻 Yang Sudah Pernah Dipelajari:
